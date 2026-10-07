@@ -1,37 +1,4 @@
-
 # Direct Wording Backrooms Theory
-A self explanatory Kane Pixel Backrooms Movie Theory.
-
-"Back" as being fully trapped with the person's unhealthy habits degrading them.
-It references the Backrooms movie phrase "the neural pathways of least resistance" of Mary's therapy & the Mary's mom's messy house in the movie.
-The more times it remembers something the less it does.
-
-It states "rooms" as the dimension's conceptual reality: architectures born for cabin and artificiality.
-
-Because it was created by a machine, Ivan Beck secretly and apparently directed it to reconstruct his failing memories and dementia.
-
-Backrooms symbolizes the final and full trap of the human struggle without nature or outside anchor.
-
-## Still Lives
-Theorizes the most whining version of the copied people, Clark manifested as the drunk attention seeking arrogant pirate, while Ravi manifested as a desperate person whooshing away intruders.
-
-## Foreshadows
-Backrooms as observed throughout all series and movie seems to always foreshadow elements naturally.
-• "Every Sultan Deserves a Throne with your name on it!" Foreshadows desires & # Direct Wording Backrooms Theory
-A self explanatory Kane Pixel Backrooms Movie Theory.
-
-"Back" as being fully trapped with the person's unhealthy habits degrading them.
-It references the Backrooms movie phrase "the neural pathways of least resistance" of Mary's therapy & the Mary's mom's messy house in the movie.
-The more times it remembers something the less it does.
-
-It states "rooms" as the dimension's conceptual reality: architectures born for cabin and artificiality.
-
-Because it was created by a machine, Ivan Beck secretly and apparently directed it to reconstruct his failing memories and dementia.
-
-Backrooms symbolizes the final and full trap of the human struggle without nature or outside anchor.
-
-## Still Lives
-Theorizes the most whining version of the copied people, Clark manifested as the drunk attention seeking arrogant pirate, while Ravi manifested as a desperate person whooshing away intruders.# Direct Wording Backrooms Theory
 A self explanatory Kane Pixel Backrooms Movie Theory.
 
 "Back" as being fully trapped with the person's unhealthy habits degrading them.
