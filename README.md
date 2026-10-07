@@ -7,7 +7,7 @@ The more times it remembers something the less it does.
 
 It states "rooms" as the dimension's conceptual reality: architectures born for cabin and artificiality.
 
-Because it was curated by a machine, Ivan Beck secretly and apparently directed it to reconstruct his failing memories and dementia.
+Because it was curated by a machine, Ivan Beck secretly and apparently directed it to reconstruct his failing memories from dementia.
 
 Backrooms symbolize the final and full trap of the human struggle without nature or outside anchor.
 
