@@ -1,7 +1,7 @@
 # Direct Wording Backrooms Theory
 A self explanatory Kane Pixel Backrooms Movie Theory.
 
-(DEBUNKED: Kane Pixel denied his version of Backrooms as non human centric. Though this theory is treated as a parallel theory.)
+(DEBUNKED: Kane Pixel denied his version of Backrooms as human centric. Though this theory is treated as a parallel theory.)
 
 "Back" as being fully trapped with the person's unhealthy habits degrading them.
 It references the Backrooms movie phrase "the neural pathways of least resistance" of Mary's therapy & the Mary's mom's messy house in the movie.
